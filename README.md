@@ -1,0 +1,5 @@
+#ilkrepo
+
+
+
+deneme yapiyorum
